@@ -6,6 +6,12 @@
 
 В рамках одной категории и одного артиста в категории альбомы равномерно пиздаты. Категории расположены по убыванию пиздатости.
 
+## SSS Tier (Sexy Super Special)
+
+Kid Cudi - [MOTM TRILOGY BOX SET](https://shop.kidcudi.com/products/motm-trilogy-box-set)
+
+АукцЫон - Птица
+
 ## S Tier
 
 Bowie:
