@@ -16,7 +16,7 @@ Kid Cudi - [MOTM TRILOGY BOX SET](https://shop.kidcudi.com/products/motm-trilogy
 
 Bowie:
 
-- Scary Monsters and Super Creeps
+- [x] Scary Monsters and Super Creeps
 - Ziggy Stardust and ...
 
 The Cure:
